@@ -17,3 +17,5 @@
 5. Speler ❎ plaatst B2
 6. Speler ⏺️ plaatst C2
 7. Speler ❎ plaatst C3 en **WINT!** 🥳
+
+uhadkughduwghiadughwrehgouea
